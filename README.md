@@ -1,5 +1,4 @@
 # *The Legacy of Claude Monet*
-## by: Sofia Misha B. Tiay
 
 
 *Who is Claude Monet? and why is he so significant in the development impressionist painting?*
